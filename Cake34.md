@@ -1,0 +1,7 @@
+![brooklyn 03](https://user-images.githubusercontent.com/80503808/199654559-71b20611-d01b-4513-b9ed-65dc3704d499.png)
+![brooklyn 04](https://user-images.githubusercontent.com/80503808/199654564-37024395-1045-4002-ae4f-0bd8d51d7cf7.png)
+![brooklyn 05](https://user-images.githubusercontent.com/80503808/199654569-6357daea-feb7-4aba-9005-1c8fbb4cce20.png)
+![brooklyn 06](https://user-images.githubusercontent.com/80503808/199654570-b93aa4b8-85d6-4de1-8dca-89870fe94e9d.png)
+![brooklyn 07](https://user-images.githubusercontent.com/80503808/199654572-42e8a7b8-1666-4315-bc85-4fe7397d24e6.png)
+![brooklyn 01](https://user-images.githubusercontent.com/80503808/199654577-871a9497-6384-4303-9a9a-18a56983cc7d.png)
+![brooklyn 02](https://user-images.githubusercontent.com/80503808/199654580-159eea20-8b9f-4f18-b4a4-2560ba8c2f05.png)
