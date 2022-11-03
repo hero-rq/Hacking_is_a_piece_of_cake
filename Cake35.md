@@ -1,0 +1,6 @@
+![lazy 02](https://user-images.githubusercontent.com/80503808/199654674-4dac1631-6a4a-48a1-a8c6-d9c444c912a2.png)
+![lazy 03](https://user-images.githubusercontent.com/80503808/199654682-032622b6-f6a0-42a7-ac28-3165347a895a.png)
+![lazy 04](https://user-images.githubusercontent.com/80503808/199654686-5931275c-2802-40b5-b545-3a890ef73104.png)
+![nmap](https://user-images.githubusercontent.com/80503808/199654688-6f1c1b16-1cb8-470d-8492-5b0e7d335185.png)
+![lazy 00](https://user-images.githubusercontent.com/80503808/199654689-15678952-7729-4800-b7d7-f84591ca479a.png)
+![lazy 01](https://user-images.githubusercontent.com/80503808/199654691-77694bc2-b49e-4e64-965a-10003a973167.png)
