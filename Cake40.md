@@ -1,0 +1,5 @@
+![로그 4j 02](https://user-images.githubusercontent.com/80503808/200484451-1099414d-9041-4092-ba8c-3fae24bc0b36.png)
+![로그 4j 01](https://user-images.githubusercontent.com/80503808/200484457-ce5898f6-8a64-4b17-b786-9fbf527520ac.png)
+![로그 4j](https://user-images.githubusercontent.com/80503808/200484469-da20639b-7133-4622-b9b8-7fca521b7be6.png)
+![랜덤 00](https://user-images.githubusercontent.com/80503808/200484474-60152f33-7c62-41a2-bb55-5afd95e822d7.png)
+![로그 4j 03](https://user-images.githubusercontent.com/80503808/200484484-6dd75d22-1e1b-4f5a-ac8c-8844c5efff66.png)
